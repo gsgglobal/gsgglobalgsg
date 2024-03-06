@@ -1,3 +1,5 @@
-# gsgglobalgsg
-Odoo ERP for business | Certified Odoo Partner in UK - Gsg Global 
-Gsg Global is UK's Leading Odoo Gold Partner based in the UK. We offer Odoo ERP and CRM enterprise application software in London and the UK.
+Manufacturing Accounting Software | Manufacturing Software UK
+
+GSG Provides the best Manufacturing Accounting Software in the UK. Manufacturing Software helps you track inventory, build items, and run financial reports.
+
+https://www.gsgglobalsolutions.com/accounting-software-for-manufacturing-businesses
